@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Paulo-pereira2077 😁
+## Bem-vindo(a) ao perfil do Paulo 😁
 
  <div>
    <a href="https://github.com/Paulo-pereira2077">
